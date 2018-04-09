@@ -1,2 +1,0 @@
-#Shoshana e sama
-hahaha
